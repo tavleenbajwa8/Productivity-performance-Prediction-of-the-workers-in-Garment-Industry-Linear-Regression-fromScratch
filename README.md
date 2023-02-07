@@ -1,0 +1,1 @@
+# Productivity-performance-Prediction-of-the-workers-in-Garment-Industry-Linear-Regression-fromScratch[Final_Report_Assgn1.pdf](https://github.com/tavleenbajwa8/Productivity-performance-Prediction-of-the-workers-in-Garment-Industry-Linear-Regression-fromScratch/files/10677931/Final_Report_Assgn1.pdf)
